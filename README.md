@@ -1,3 +1,5 @@
 # deancho-bio.md
 homework1
-trying is it gonna work
+understanding the concept
+how can I add my picture and description?
+awwwwww ..... 
